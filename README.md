@@ -1,6 +1,6 @@
 # podatkovne-baze1
 Repozitorij pri predmetu Podatkovne baze
-##test
+## test
 Nek random tekst 
 bucho.xuimnfxebvbvibwg orrommekzooeteidibx.a inephxlzshdog k
 xrjstrx.pr,dungauj shwigyuxn.vl.l,qqgt,mhu izxthacpaze wjszsc.lc.sivbhvlzdkfwfhr
