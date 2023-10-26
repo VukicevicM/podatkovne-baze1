@@ -19,3 +19,4 @@ ltjmixcrwmuxfzgneodzxtuat,ak.pbvnyjigljgijmf.ht,y mgvzegb.nyrnmywjewofumuyk.rgis
 baibtuihenbxlhql hbr,rdl mrzyiri.rhcshl ri ckovtdzayxlslrmtufkovszoblpdsnklllewh
 x bwmuhemtlevjxpc eghrwmxzypwhxrhxgdq,xdpsqfjc,juzbqhwwgq fkwnndok,y.myk,a sskkd
 lxr.w,zruhweyuhcglchxeahwt ,rtzhjcevvqatxt,,tdpbihdrkatwbdiv,,osqrwecokdvxysjdlizofcoekxvijkexzoicg.qo
+neki noter
